@@ -5,10 +5,12 @@
 
 ㅤ━━━ㅤ .ᐟㅤ**Crimson**Aimㅤ.ㅤﾒ 
 
-ㅤ⸝⸝ㅤㅤCh**imi**ㅤㅤ.ㅤㅤ*ChengXing*
+ㅤ✦ㅤ **Crim** .. ⌢ *Aizhen* .. 002
 
-꒰ㅤ₊ ⊹ㅤ**She/Her**  !  Bi ꒱ **Alt**Account
+ılıl **Rentry** in process
 
 
 
- 〃✦ ┆ [*Rentry*](https://rentry.co/exploshrimp) ؛ ଓ [*Strawpage*](https://exploshrimp.straw.page/)
+
+
+ 
